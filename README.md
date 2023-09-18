@@ -9,3 +9,6 @@
 
 Feel free to explore my repositories to learn more about these projects and my coding journey!
 Thanks for visiting my GitHub profile! Let's connect, learn, and create together. 🚀
+
+
+email id: thakur2004prerna@gmail.com
